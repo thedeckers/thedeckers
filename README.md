@@ -16,3 +16,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⠀⠀⠀⠀⠀
 𝒩otoriety : 2
 ![IMG_6295](https://github.com/user-attachments/assets/7970239b-a617-4cef-8fcb-421145816f66)
+my SHIT lazy ass art of me
+<img width="1920" height="1200" alt="sketch1770354012730" src="https://github.com/user-attachments/assets/73fab599-1699-4934-8018-a05981cbb7fe" />
+
